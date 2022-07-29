@@ -11,6 +11,7 @@ What makes my tick:
 - I value creative thinking
 - the determination to never give up
 - and the integrity to never "slide by"
+
 These standards I hold myself to allow me to produce new and innovative software while helping to keep my own and my colleagues' spirits high even during in the midst of challenges. 
 
 I bring to the team:
